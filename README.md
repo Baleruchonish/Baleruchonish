@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...ewjith
-- 😄 Pronouns: .jidfgovjurig
+- 😄 Pronouns: .jitbtaeb
 - ⚡ Fun fact: i`m love Trump hiheh
 <!---trhgtyjergfredbw
 Baleruchonish/Baleruchonish is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
