@@ -2,7 +2,7 @@
 - 👀 I’m interested in game cs2)0)))ds
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...esngtrhgref
+- 📫 How to reach me ...esbg wrsevc
 - 😄 Pronouns: .jitbtaeb
 - ⚡ Fun fact: i`m love Trump hiheh
 <!---trhgtyjergfredbw
